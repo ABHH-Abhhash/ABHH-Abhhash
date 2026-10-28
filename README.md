@@ -1,5 +1,7 @@
 # 💫 About Me:
-Hi 👋, I'm ABHH-Abhhash, a passionate YouTuber, Dancer, and Tech Enthusiast. 🚀 I'm interested in Coding, Website Development, App Development, and Game Development. 💻 I also enjoy Cybersecurity, Ethical Hacking, Graphic Designing, Canva Designing, Video Editing, and Photo Editing. 🎨🔐 I'm always exploring new technologies, learning new skills, and building creative projects. My goal is to turn innovative ideas into reality through technology and creativity. I love experimenting with new tools, improving my skills, and collaborating with like-minded people. Let's learn, create, and grow together! ⚡
+![Uploading 2d4a8f9fe6f3c9c0142f480f899bbc88939e4cc4ec45c71b1c05918b59219208.png…]()
+
+Hi 👋, I'm ABHH-Abhhash, a passionate , Dancer, and Tech Enthusiast. 🚀 I'm YouTuber interested in Coding, Website Development, App Development, and Game Development. 💻 I also enjoy Cybersecurity, Ethical Hacking, Graphic Designing, Canva Designing, Video Editing, and Photo Editing. 🎨🔐 I'm always exploring new technologies, learning new skills, and building creative projects. My goal is to turn innovative ideas into reality through technology and creativity. I love experimenting with new tools, improving my skills, and collaborating with like-minded people. Let's learn, create, and grow together! ⚡
 
 
 ## 🌐 Socials:
